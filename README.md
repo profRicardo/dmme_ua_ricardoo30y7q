@@ -1,1 +1,0 @@
-# dmme_ua_ricardoo30y7q
